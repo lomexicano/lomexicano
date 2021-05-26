@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @lomexicano
+- 👀 I’m interested in MacroMod Scripts
+- 🌱 I’m currently learning absolutely nothing, what a waste of an existence
+- 📫 How to reach me: discord lomexicano#0001
