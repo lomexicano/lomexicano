@@ -1,6 +1,6 @@
 
 
-### I make some simple Macro KeyBind scripts
+### I make some ~~simple~~ Macro KeyBind scripts
 
 Contact:  
 -  Discord:
