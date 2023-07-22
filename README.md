@@ -3,7 +3,7 @@
 ### I make some ~~simple~~ Macro KeyBind scripts
 
 Contact:  
--  Discord:
+-  Discord (@lomexicano):
 	- ID: [277301646050983936](https://discord.com/users/277301646050983936)
 - Email:
 	- lomexicanocl@gmail.com  
